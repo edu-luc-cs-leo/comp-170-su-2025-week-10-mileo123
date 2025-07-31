@@ -8,7 +8,7 @@ This assignment has two parts: a reflection part to evaluate work you have alrea
 
 There is no final exam for the course. There will be a final assignemnt that will be published the week before finals and will be due the week of finals. Additionally, 8 students in the course will be invited randomly to a brief meeting with the instructor during the course's final exam slot. 
 
-These meetings will be scheduled on **Wednesday August 6, from 11 AM to 1 PM** in 15-minute slots. If you are selected, randomly, for an oral followup, you will be notified by email on Monday 8/4/25 at 11 AM.
+These meetings will be scheduled on **Wednesday August 6, from 11:30 AM to 1:30 PM** in 15-minute slots. If you are selected, randomly, for an oral followup, you will be notified by email on Monday 8/4/25 at 11 AM.
 
 
 
